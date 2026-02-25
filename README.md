@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/9872a39ee50958af7254b70680520ea1/6265ae964b775eed-f1/s400x600/ed2170da10169a228a1cc13a08b63e4761e69779.gifv)
+![](https://64.media.tumblr.com/0ddeec644a1c628e96a258e08b229964/314bf07711079915-a2/s400x600/774678a341ac7945ca69abda506057049e10c407.pnj)
 
 ![](https://64.media.tumblr.com/05d5c2d5eb6764f9d0f80a073ff20a91/280f05da42d3b5b8-b5/s75x75_c1/c0c9129181a987b55c48110157e8d3cfe30c93c8.gifv) 𝙵𝙴𝙵𝙴𝚁𝙸 𝙿𝙴𝙸𝚇𝙴𝚂 ; 𝙳𝚒𝙳 𝚂𝚈𝚂𝚃𝙴𝙼
  
@@ -20,3 +20,5 @@
  ♡⸝⸝ [𝙸𝚗𝚏𝚘](https://pronouns.cc/@HoneymoonCollective/cuttlefishculler)  ⫶ [𝙼𝚊𝚒𝚗 𝚁𝚎𝚗𝚝𝚛𝚢](https://rentry.co/HoneymoonCollective) ⫶ [𝙼𝚊𝚒𝚗](https://github.com/angelifying)
 
  ‎╰─..★.──────────────────╯
+
+ ![](https://64.media.tumblr.com/b77d336e1c6444126a0bdcb59b8e707c/314bf07711079915-df/s400x600/9e948277a8b5d4645795712fb731ff3db5aa8621.pnj)
